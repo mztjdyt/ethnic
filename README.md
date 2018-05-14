@@ -39,36 +39,69 @@
 衙门“妥善处置，依法予以查处”；华为“歪曲事实，采取法律措施”	http://note.youdao.com/noteshare?id=0ef0e16bf9fd8dbf5c9f9cd7cc641b6f
 
 世界是你们的，也是我们的，但是归根结底是他们“大地代治者”的？	http://note.youdao.com/noteshare?id=7490b40aa33328676a46468e955910b7
+
 宁夏某公司，你们凭什么让人坐货梯？种族隔离搞习惯了是吧？	http://note.youdao.com/noteshare?id=f9cffcc68f6484f37dd9234a4b9db995
+
 辽宁“教卫军”：星月挂肩头，教法在心中？	http://note.youdao.com/noteshare?id=e1064bee535dde79f7020f6761461e28
+
 谁能管住拉面帮？	http://note.youdao.com/noteshare?id=4e36dd9f868a4b367e274096aa593c8d
+
 汉族都认同自己是“龙的传人”吗？少数民族也认同自己是“龙的传人”吗？	http://note.youdao.com/noteshare?id=13bc5f0f791510bf238a0406e39b927c
+
 闵越故里怎么出了个阿拉伯“飞地”？	http://note.youdao.com/noteshare?id=aafb93bcc8d28c3004ced6dd2f7d338c
+
 电视剧《东方》编剧：种族隔离，反以为荣	http://note.youdao.com/noteshare?id=c253d662fd79d0bb253433dcc39314e7
+
 某些“清真贵族”，都送餐上门了，还要不依不饶？	http://note.youdao.com/noteshare?id=4428067f4689b67a572bbe231303f8c3
+
 清真寺泛滥的背后：教派众多	http://note.youdao.com/noteshare?id=13298d623ebd200c62db46d21a5cae94
+
 科学教育与宗教的艰难抗争——以临夏为例	http://note.youdao.com/noteshare?id=dac48e1a3054b71778204277850f4181
+
 宁夏为何对某些中东人大开国门？	http://note.youdao.com/noteshare?id=4ae2202034e0805b9be91d4828f30f0a
+
 你到底是穆斯林还是党员？拟任河北省政府特殊津贴专家的白贵教授	http://note.youdao.com/noteshare?id=743e2bd8ccb125c959b6a12c12eec2a5
+
 伊斯兰风情小镇：谁敢断我财路，我就请他“吃饭”！	http://note.youdao.com/noteshare?id=6f764902b7247acc7c8678d48135e1a1
+
 宿迁偷建清真寺，绿杨城郭是扬州	http://note.youdao.com/noteshare?id=96be119429bd8c652744286137a83ebb
+
 某地团干：你们是共产主义青年团还是瓦哈比青年团？	http://note.youdao.com/noteshare?id=77f3605eeb61aa5d3e676330c7999079
+
 元朝“左右榜”重现湖南？	http://note.youdao.com/noteshare?id=a942cda8684900ccc05bd2f4588b52fa
+
 青海民大，学生发个课程表犯了你家什么法？	http://note.youdao.com/noteshare?id=919d2eb0385fb4942defd897df87e91b
+
 极端分子统一行动，威胁要杀统战部长	http://note.youdao.com/noteshare?id=67380c014acc3b8ef051c883a49b975e
+
 宁夏大学虽大，却容不下一个世俗餐厅？	http://note.youdao.com/noteshare?id=10adf9f14e095e84a227769ba70aca43
+
 清真地带：谁的地盘，谁做主？	http://note.youdao.com/noteshare?id=9c6accfa3361780e10a6500917e185e0
+
 听共产党指挥还是听真主党指挥？	http://note.youdao.com/noteshare?id=58c38e23e659058b654e728b7d10b954
+
 美团，你也配“清真”？	http://note.youdao.com/noteshare?id=a80b1eaaabe05c4293c72927ab3e35eb
+
 某大学为何盛产这样的“教授”？	http://note.youdao.com/noteshare?id=5a61622115942d6643f95e30bfb77917
+
 三年了，沙甸变成什么样了？	http://note.youdao.com/noteshare?id=95c80b9c50d6c60362dcac902ce38511
+
 依法治国不能变成“伊法治国”	http://note.youdao.com/noteshare?id=69eb8f8b52c5919a108f57c4ba103fdc
+
 阿拉伯语和马来语为何不是“一带一路”高峰论坛的工作语言？	http://note.youdao.com/noteshare?id=8b62890fed290cd129cf0f7a3ac9919e
+
 我可以砸，你不能骂——再评白沟事件	http://note.youdao.com/noteshare?id=5ee2ce43f2d798a7518e5594ca957541
+
 义乌重蹈欧洲难民危机覆辙？	http://note.youdao.com/noteshare?id=1ffcd0f9feacc92727ea615dcbcd7181
+
 是团结还是压迫？	http://note.youdao.com/noteshare?id=c9a989b81e752c5dc1bdf8811ec47f46
+
 民族团结”，多少罪恶假汝之名？	http://note.youdao.com/noteshare?id=75dc204eb282b6afc896d3cce59d9826
+
 萧瑟秋风今又是，换了人间	http://note.youdao.com/noteshare?id=b0bbf3b911bc68a9ea09482734e24d42
+
 李云飞阿訇，威胁的底气有点不足嘛	http://note.youdao.com/noteshare?id=149450092b47b54b713c490011bad192
+
 直面IS的挑战，中国如何治标又治本？	http://note.youdao.com/noteshare?id=ffea46056174cfdf04bcab2800d3e3a4
+
 合肥航空新城：两种中国之命运	http://note.youdao.com/noteshare?id=5b7d62d9ae2279b545c0f89383a69373
