@@ -1,24 +1,43 @@
 请关注微信公众号：天涯何处是神州
 
 河北正定，种族歧视连死者都不放过？	http://note.youdao.com/noteshare?id=7746b7d8ae6ac39d6840ac8de5edc0a4
+
 到回民公墓义务植树！某机关为何把服务某教作为核心工作？	http://note.youdao.com/noteshare?id=cbd50850fa9579aa8cb2e5c127434f76
+
 双重标准：外来宗教是信仰，本土信仰是迷信	http://note.youdao.com/noteshare?id=c63734bcc127213d2f151239f95f55ed
+
 宁夏清理的重点，在官不在民	http://note.youdao.com/noteshare?id=a014a4ee3436ab8857a6e913231a2a33
+
 丝绸之路不是“伊带伊路”，终点应是欧洲！	http://note.youdao.com/noteshare?id=ecdc7f17533344764cb381c728ea966f
+
 浪奔浪流，万里涛涛“辱教”永不休？	http://note.youdao.com/noteshare?id=71929e7b72f13dc3c283b3d9da9b0443
+
 用小品表现“万国来朝”，这是一大发明	http://note.youdao.com/noteshare?id=ece57eebaaf6e529e84cadd4ed51cb8e
+
 光放开二胎，不检讨政策错误、不解决实际困难，人口雪崩不可避免	http://note.youdao.com/noteshare?id=fad6e844eb34b2cb18830d1a28856b89
+
 极端分子的“舆论战”三招，招招要命	http://note.youdao.com/noteshare?id=2ff93f5c45879d7a7c3dfbd95c49b283
+
 假期禁止学生进入宗教场所是完全合法的正义之举	http://note.youdao.com/noteshare?id=efc453db1c9ffb8d9c047285e07b0bd9
+
 “两少一宽”仍在执行，何谈“中立”和“平等”？	http://note.youdao.com/noteshare?id=1d4e71cb9ca42060edb1da08b65d0c9b
+
 圣母婊滚到难民营去，中国不欢迎！	http://note.youdao.com/noteshare?id=573e5f1ec3036ee7ff5e2a79b9f7b1ce
+
 侮辱英雄的惩处不能厚此薄彼	http://note.youdao.com/noteshare?id=2d115a1a0d900add636e460a1d61441f
+
 课本删除卫青霍去病是为了“团结”谁？	http://note.youdao.com/noteshare?id=b186f3d3475a156277350dbdf9c2fd8f
+
 政府拨款维修宗教场所能让教众“爱国”大于“爱教”吗？	http://note.youdao.com/noteshare?id=47729f5fa5c40eb876b217f5709e4225
+
 自治区不够了，要“特区”了？	http://note.youdao.com/noteshare?id=c71ba16d4e6b7f96dc192c868d690e68
+
 首都经贸大学的某些学生，过非清真餐厅感觉不舒服，以后还做什么“经贸”？	http://note.youdao.com/noteshare?id=d94401ce48b52cd6d8cc55889e7cf984
+
 某地某委，万般皆下品唯有××高？	http://note.youdao.com/noteshare?id=2e7c208b4608511cdd1acbf73fff814b
+
 衙门“妥善处置，依法予以查处”；华为“歪曲事实，采取法律措施”	http://note.youdao.com/noteshare?id=0ef0e16bf9fd8dbf5c9f9cd7cc641b6f
+
 世界是你们的，也是我们的，但是归根结底是他们“大地代治者”的？	http://note.youdao.com/noteshare?id=7490b40aa33328676a46468e955910b7
 宁夏某公司，你们凭什么让人坐货梯？种族隔离搞习惯了是吧？	http://note.youdao.com/noteshare?id=f9cffcc68f6484f37dd9234a4b9db995
 辽宁“教卫军”：星月挂肩头，教法在心中？	http://note.youdao.com/noteshare?id=e1064bee535dde79f7020f6761461e28
