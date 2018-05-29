@@ -4,3 +4,6 @@
 
 警惕！日拱一卒的“嵌入”路线图
 https://github.com/mztjdyt/ethnic/blob/master/%E3%80%90%E8%AD%A6%E6%83%95%E3%80%91%E6%97%A5%E6%8B%B1%E4%B8%80%E5%8D%92%E7%9A%84%E2%80%9C%E5%B5%8C%E5%85%A5%E2%80%9D%E8%B7%AF%E7%BA%BF%E5%9B%BE.html
+
+长大后，我就成了你：从马兆霖到马晓霖——说说那些塔基亚的“党员”们
+https://github.com/mztjdyt/ethnic/blob/master/%E9%95%BF%E5%A4%A7%E5%90%8E%EF%BC%8C%E6%88%91%E5%B0%B1%E6%88%90%E4%BA%86%E4%BD%A0%EF%BC%9A%E4%BB%8E%E9%A9%AC%E5%85%86%E9%9C%96%E5%88%B0%E9%A9%AC%E6%99%93%E9%9C%96.txt
