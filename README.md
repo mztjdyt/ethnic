@@ -7,3 +7,6 @@ https://github.com/mztjdyt/ethnic/blob/master/%E3%80%90%E8%AD%A6%E6%83%95%E3%80%
 
 长大后，我就成了你：从马兆霖到马晓霖——说说那些塔基亚的“党员”们
 https://github.com/mztjdyt/ethnic/blob/master/%E9%95%BF%E5%A4%A7%E5%90%8E%EF%BC%8C%E6%88%91%E5%B0%B1%E6%88%90%E4%BA%86%E4%BD%A0%EF%BC%9A%E4%BB%8E%E9%A9%AC%E5%85%86%E9%9C%96%E5%88%B0%E9%A9%AC%E6%99%93%E9%9C%96.txt
+
+开斋节凭什么可以占道礼拜？
+https://github.com/mztjdyt/ethnic/blob/master/%E5%BC%80%E6%96%8B%E8%8A%82%E5%87%AD%E4%BB%80%E4%B9%88%E5%8F%AF%E4%BB%A5%E5%8D%A0%E9%81%93%E7%A4%BC%E6%8B%9C%EF%BC%9F
