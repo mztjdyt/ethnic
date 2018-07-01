@@ -1,5 +1,7 @@
 请关注微信公众号：天涯何处是神州
 
+漠视基本盘的“跪舔”式执法能“民族团结”吗？
+https://github.com/mztjdyt/ethnic/blob/master/%E2%80%9C%E8%B7%AA%E8%88%94%E5%BC%8F%E2%80%9D%E6%89%A7%E6%B3%95%E8%83%BD%E2%80%9C%E6%B0%91%E6%97%8F%E5%9B%A2%E7%BB%93%E2%80%9D%E5%90%97%EF%BC%9F.txt
 
 上有所好，下必甚焉：湖北鄂州交警48小时处理一起涉及少数民族的交通事故：
 https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%8A%E6%9C%89%E6%89%80%E5%A5%BD%EF%BC%8C%E4%B8%8B%E5%BF%85%E7%94%9A%E7%84%89%EF%BC%9A%E6%B9%96%E5%8C%97%E9%84%82%E5%B7%9E%E4%BA%A4%E8%AD%A648%E5%B0%8F%E6%97%B6%E5%A4%84%E7%90%86%E4%B8%80%E8%B5%B7%E6%B6%89%E5%8F%8A%E5%B0%91%E6%95%B0%E6%B0%91%E6%97%8F%E7%9A%84%E4%BA%A4%E9%80%9A%E4%BA%8B%E6%95%85.txt
