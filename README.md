@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+“前往某委改少民，改了少民不受气”
+https://github.com/mztjdyt/ethnic/blob/master/%E2%80%9C%E5%89%8D%E5%BE%80%E6%9F%90%E5%A7%94%E6%94%B9%E5%B0%91%E6%B0%91%EF%BC%8C%E6%94%B9%E4%BA%86%E5%B0%91%E6%B0%91%E4%B8%8D%E5%8F%97%E6%B0%94%E2%80%9D.txt
+
 漠视基本盘的“跪舔”式执法能“民族团结”吗？
 https://github.com/mztjdyt/ethnic/blob/master/%E2%80%9C%E8%B7%AA%E8%88%94%E5%BC%8F%E2%80%9D%E6%89%A7%E6%B3%95%E8%83%BD%E2%80%9C%E6%B0%91%E6%97%8F%E5%9B%A2%E7%BB%93%E2%80%9D%E5%90%97%EF%BC%9F.txt
 
