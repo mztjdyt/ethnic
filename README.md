@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+一个民族，不争取本族的权利，是毫无希望的奴隶之族
+https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%80%E4%B8%AA%E6%B0%91%E6%97%8F%EF%BC%8C%E4%B8%8D%E4%BA%89%E5%8F%96%E6%9C%AC%E6%97%8F%E7%9A%84%E6%9D%83%E5%88%A9%EF%BC%8C%E6%98%AF%E6%AF%AB%E6%97%A0%E5%B8%8C%E6%9C%9B%E7%9A%84%E5%A5%B4%E9%9A%B6%E4%B9%8B%E6%97%8F
+
 “前往某委改少民，改了少民不受气”
 https://github.com/mztjdyt/ethnic/blob/master/%E2%80%9C%E5%89%8D%E5%BE%80%E6%9F%90%E5%A7%94%E6%94%B9%E5%B0%91%E6%B0%91%EF%BC%8C%E6%94%B9%E4%BA%86%E5%B0%91%E6%B0%91%E4%B8%8D%E5%8F%97%E6%B0%94%E2%80%9D.txt
 
