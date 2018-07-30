@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+烧的是棺材，更是人心和传统
+https://github.com/mztjdyt/ethnic/blob/master/%E7%83%A7%E7%9A%84%E6%98%AF%E6%A3%BA%E6%9D%90%EF%BC%8C%E6%9B%B4%E6%98%AF%E4%BA%BA%E5%BF%83%E5%92%8C%E4%BC%A0%E7%BB%9F
+
 一个民族，不争取本族的权利，是毫无希望的奴隶之族
 https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%80%E4%B8%AA%E6%B0%91%E6%97%8F%EF%BC%8C%E4%B8%8D%E4%BA%89%E5%8F%96%E6%9C%AC%E6%97%8F%E7%9A%84%E6%9D%83%E5%88%A9%EF%BC%8C%E6%98%AF%E6%AF%AB%E6%97%A0%E5%B8%8C%E6%9C%9B%E7%9A%84%E5%A5%B4%E9%9A%B6%E4%B9%8B%E6%97%8F
 
