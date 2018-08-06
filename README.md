@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+一个违法清真寺的拆除通知，为何引发全国网民高度关注和宗教势力的强烈反对？
+https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%80%E4%B8%AA%E8%BF%9D%E6%B3%95%E6%B8%85%E7%9C%9F%E5%AF%BA%E7%9A%84%E6%8B%86%E9%99%A4%E9%80%9A%E7%9F%A5%EF%BC%8C%E4%B8%BA%E4%BD%95%E5%BC%95%E5%8F%91%E5%85%A8%E5%9B%BD%E7%BD%91%E6%B0%91%E9%AB%98%E5%BA%A6%E5%85%B3%E6%B3%A8%E5%92%8C%E5%AE%97%E6%95%99%E5%8A%BF%E5%8A%9B%E7%9A%84%E5%BC%BA%E7%83%88%E5%8F%8D%E5%AF%B9%EF%BC%9F
+
 烧的是棺材，更是人心和传统
 https://github.com/mztjdyt/ethnic/blob/master/%E7%83%A7%E7%9A%84%E6%98%AF%E6%A3%BA%E6%9D%90%EF%BC%8C%E6%9B%B4%E6%98%AF%E4%BA%BA%E5%BF%83%E5%92%8C%E4%BC%A0%E7%BB%9F
 
