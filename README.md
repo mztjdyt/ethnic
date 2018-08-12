@@ -1,5 +1,11 @@
 请关注微信公众号：天涯何处是神州
 
+某地除了国旗，还有红的吗？
+https://github.com/mztjdyt/ethnic/blob/master/%E6%9F%90%E5%9C%B0%E9%99%A4%E4%BA%86%E5%9B%BD%E6%97%97%EF%BC%8C%E8%BF%98%E6%9C%89%E7%BA%A2%E7%9A%84%E5%90%97%EF%BC%9F
+
+“被文明遗弃的支那猪”——韦州事件后某教徒部分留言展示
+https://github.com/mztjdyt/ethnic/blob/master/%E2%80%9C%E8%A2%AB%E6%96%87%E6%98%8E%E9%81%97%E5%BC%83%E7%9A%84%E6%94%AF%E9%82%A3%E7%8C%AA%E2%80%9D%E2%80%94%E2%80%94%E9%9F%A6%E5%B7%9E%E4%BA%8B%E4%BB%B6%E5%90%8E%E6%9F%90%E6%95%99%E5%BE%92%E9%83%A8%E5%88%86%E7%95%99%E8%A8%80%E5%B1%95%E7%A4%BA
+
 一个违法清真寺的拆除通知，为何引发全国网民高度关注和宗教势力的强烈反对？
 https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%80%E4%B8%AA%E8%BF%9D%E6%B3%95%E6%B8%85%E7%9C%9F%E5%AF%BA%E7%9A%84%E6%8B%86%E9%99%A4%E9%80%9A%E7%9F%A5%EF%BC%8C%E4%B8%BA%E4%BD%95%E5%BC%95%E5%8F%91%E5%85%A8%E5%9B%BD%E7%BD%91%E6%B0%91%E9%AB%98%E5%BA%A6%E5%85%B3%E6%B3%A8%E5%92%8C%E5%AE%97%E6%95%99%E5%8A%BF%E5%8A%9B%E7%9A%84%E5%BC%BA%E7%83%88%E5%8F%8D%E5%AF%B9%EF%BC%9F
 
