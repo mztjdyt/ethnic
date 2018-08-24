@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+甘肃治理“泛清真化”？连治标都算不上
+https://github.com/mztjdyt/ethnic/blob/master/%E7%94%98%E8%82%83%E6%B2%BB%E7%90%86%E2%80%9C%E6%B3%9B%E6%B8%85%E7%9C%9F%E5%8C%96%E2%80%9D%EF%BC%9F%E8%BF%9E%E6%B2%BB%E6%A0%87%E9%83%BD%E7%AE%97%E4%B8%8D%E4%B8%8A
+
 某地除了国旗，还有红的吗？
 https://github.com/mztjdyt/ethnic/blob/master/%E6%9F%90%E5%9C%B0%E9%99%A4%E4%BA%86%E5%9B%BD%E6%97%97%EF%BC%8C%E8%BF%98%E6%9C%89%E7%BA%A2%E7%9A%84%E5%90%97%EF%BC%9F
 
