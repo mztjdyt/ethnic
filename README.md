@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+何时能对扭曲的“××团结”进行“正当防卫”？
+https://github.com/mztjdyt/ethnic/blob/master/%E4%BD%95%E6%97%B6%E8%83%BD%E5%AF%B9%E6%89%AD%E6%9B%B2%E7%9A%84%E2%80%9C%C3%97%C3%97%E5%9B%A2%E7%BB%93%E2%80%9D%E8%BF%9B%E8%A1%8C%E2%80%9C%E6%AD%A3%E5%BD%93%E9%98%B2%E5%8D%AB%E2%80%9D%EF%BC%9F
+
 甘肃治理“泛清真化”？连治标都算不上
 https://github.com/mztjdyt/ethnic/blob/master/%E7%94%98%E8%82%83%E6%B2%BB%E7%90%86%E2%80%9C%E6%B3%9B%E6%B8%85%E7%9C%9F%E5%8C%96%E2%80%9D%EF%BC%9F%E8%BF%9E%E6%B2%BB%E6%A0%87%E9%83%BD%E7%AE%97%E4%B8%8D%E4%B8%8A
 
