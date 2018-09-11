@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+为何同为中国公民，死了还不能平等？
+https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%BA%E4%BD%95%E5%90%8C%E4%B8%BA%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%EF%BC%8C%E6%AD%BB%E4%BA%86%E8%BF%98%E4%B8%8D%E8%83%BD%E5%B9%B3%E7%AD%89%EF%BC%9F
+
 何时能对扭曲的“××团结”进行“正当防卫”？
 https://github.com/mztjdyt/ethnic/blob/master/%E4%BD%95%E6%97%B6%E8%83%BD%E5%AF%B9%E6%89%AD%E6%9B%B2%E7%9A%84%E2%80%9C%C3%97%C3%97%E5%9B%A2%E7%BB%93%E2%80%9D%E8%BF%9B%E8%A1%8C%E2%80%9C%E6%AD%A3%E5%BD%93%E9%98%B2%E5%8D%AB%E2%80%9D%EF%BC%9F
 
