@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+OPPO为何对“四大名族”敬而远之？
+https://github.com/mztjdyt/ethnic/blob/master/OPPO%E4%B8%BA%E4%BD%95%E5%AF%B9%E2%80%9C%E5%9B%9B%E5%A4%A7%E5%90%8D%E6%97%8F%E2%80%9D%E6%95%AC%E8%80%8C%E8%BF%9C%E4%B9%8B%EF%BC%9F
+
 为何同为中国公民，死了还不能平等？
 https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%BA%E4%BD%95%E5%90%8C%E4%B8%BA%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%EF%BC%8C%E6%AD%BB%E4%BA%86%E8%BF%98%E4%B8%8D%E8%83%BD%E5%B9%B3%E7%AD%89%EF%BC%9F
 
