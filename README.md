@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+17年后，恐怖主义仍未远离
+https://github.com/mztjdyt/ethnic/blob/master/17%E5%B9%B4%E5%90%8E%EF%BC%8C%E6%81%90%E6%80%96%E4%B8%BB%E4%B9%89%E4%BB%8D%E6%9C%AA%E8%BF%9C%E7%A6%BB
+
 OPPO为何对“四大名族”敬而远之？
 https://github.com/mztjdyt/ethnic/blob/master/OPPO%E4%B8%BA%E4%BD%95%E5%AF%B9%E2%80%9C%E5%9B%9B%E5%A4%A7%E5%90%8D%E6%97%8F%E2%80%9D%E6%95%AC%E8%80%8C%E8%BF%9C%E4%B9%8B%EF%BC%9F
 
