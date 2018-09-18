@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+死人也要分贵贱，这是逼汉入×吗？
+https://github.com/mztjdyt/ethnic/blob/master/%E6%AD%BB%E4%BA%BA%E4%B9%9F%E8%A6%81%E5%88%86%E8%B4%B5%E8%B4%B1%EF%BC%8C%E8%BF%99%E6%98%AF%E9%80%BC%E6%B1%89%E5%85%A5%C3%97%E5%90%97%EF%BC%9F
+
 17年后，恐怖主义仍未远离
 https://github.com/mztjdyt/ethnic/blob/master/17%E5%B9%B4%E5%90%8E%EF%BC%8C%E6%81%90%E6%80%96%E4%B8%BB%E4%B9%89%E4%BB%8D%E6%9C%AA%E8%BF%9C%E7%A6%BB
 
