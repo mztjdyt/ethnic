@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+这个领域是宁夏去“阿化”最难啃的骨头
+https://github.com/mztjdyt/ethnic/blob/master/%E8%BF%99%E4%B8%AA%E9%A2%86%E5%9F%9F%E6%98%AF%E5%AE%81%E5%A4%8F%E5%8E%BB%E2%80%9C%E9%98%BF%E5%8C%96%E2%80%9D%E6%9C%80%E9%9A%BE%E5%95%83%E7%9A%84%E9%AA%A8%E5%A4%B4
+
 死人也要分贵贱，这是逼汉入×吗？
 https://github.com/mztjdyt/ethnic/blob/master/%E6%AD%BB%E4%BA%BA%E4%B9%9F%E8%A6%81%E5%88%86%E8%B4%B5%E8%B4%B1%EF%BC%8C%E8%BF%99%E6%98%AF%E9%80%BC%E6%B1%89%E5%85%A5%C3%97%E5%90%97%EF%BC%9F
 
