@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+一边抵制中秋节，一边卖清真月饼：去中国化与赚钱两不误
+https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%80%E8%BE%B9%E6%8A%B5%E5%88%B6%E4%B8%AD%E7%A7%8B%E8%8A%82%EF%BC%8C%E4%B8%80%E8%BE%B9%E5%8D%96%E6%B8%85%E7%9C%9F%E6%9C%88%E9%A5%BC%EF%BC%9A%E5%8E%BB%E4%B8%AD%E5%9B%BD%E5%8C%96%E4%B8%8E%E8%B5%9A%E9%92%B1%E4%B8%A4%E4%B8%8D%E8%AF%AF
+
 某些人讳猪成疾、指猪为“大”何时休？
 https://github.com/mztjdyt/ethnic/blob/master/%E6%9F%90%E4%BA%9B%E4%BA%BA%E8%AE%B3%E7%8C%AA%E6%88%90%E7%96%BE%E3%80%81%E6%8C%87%E7%8C%AA%E4%B8%BA%E2%80%9C%E5%A4%A7%E2%80%9D%E4%BD%95%E6%97%B6%E4%BC%91%EF%BC%9F
 
