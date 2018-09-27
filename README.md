@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+“中非一家亲”用得着这样吗？
+https://github.com/mztjdyt/ethnic/blob/master/%E2%80%9C%E4%B8%AD%E9%9D%9E%E4%B8%80%E5%AE%B6%E4%BA%B2%E2%80%9D%E7%94%A8%E5%BE%97%E7%9D%80%E8%BF%99%E6%A0%B7%E5%90%97%EF%BC%9F
+
 一边抵制中秋节，一边卖清真月饼：去中国化与赚钱两不误
 https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%80%E8%BE%B9%E6%8A%B5%E5%88%B6%E4%B8%AD%E7%A7%8B%E8%8A%82%EF%BC%8C%E4%B8%80%E8%BE%B9%E5%8D%96%E6%B8%85%E7%9C%9F%E6%9C%88%E9%A5%BC%EF%BC%9A%E5%8E%BB%E4%B8%AD%E5%9B%BD%E5%8C%96%E4%B8%8E%E8%B5%9A%E9%92%B1%E4%B8%A4%E4%B8%8D%E8%AF%AF
 
