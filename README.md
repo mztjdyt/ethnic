@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+书灰未冷便入狱，长安原来已斯坦
+https://github.com/mztjdyt/ethnic/blob/master/%E4%B9%A6%E7%81%B0%E6%9C%AA%E5%86%B7%E4%BE%BF%E5%85%A5%E7%8B%B1%EF%BC%8C%E9%95%BF%E5%AE%89%E5%8E%9F%E6%9D%A5%E5%B7%B2%E6%96%AF%E5%9D%A6
+
 “中非一家亲”用得着这样吗？
 https://github.com/mztjdyt/ethnic/blob/master/%E2%80%9C%E4%B8%AD%E9%9D%9E%E4%B8%80%E5%AE%B6%E4%BA%B2%E2%80%9D%E7%94%A8%E5%BE%97%E7%9D%80%E8%BF%99%E6%A0%B7%E5%90%97%EF%BC%9F
 
