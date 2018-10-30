@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+解放区的天边有乌云——西行游记之西域篇
+https://github.com/mztjdyt/ethnic/blob/master/%E8%A7%A3%E6%94%BE%E5%8C%BA%E7%9A%84%E5%A4%A9%E8%BE%B9%E6%9C%89%E4%B9%8C%E4%BA%91%E2%80%94%E2%80%94%E8%A5%BF%E8%A1%8C%E6%B8%B8%E8%AE%B0%E4%B9%8B%E8%A5%BF%E5%9F%9F%E7%AF%87
+
 书灰未冷便入狱，长安原来已斯坦
 https://github.com/mztjdyt/ethnic/blob/master/%E4%B9%A6%E7%81%B0%E6%9C%AA%E5%86%B7%E4%BE%BF%E5%85%A5%E7%8B%B1%EF%BC%8C%E9%95%BF%E5%AE%89%E5%8E%9F%E6%9D%A5%E5%B7%B2%E6%96%AF%E5%9D%A6
 
