@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+不要脸到了这个地步，真是拍案惊奇！
+https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%8D%E8%A6%81%E8%84%B8%E5%88%B0%E4%BA%86%E8%BF%99%E4%B8%AA%E5%9C%B0%E6%AD%A5%EF%BC%8C%E7%9C%9F%E6%98%AF%E6%8B%8D%E6%A1%88%E6%83%8A%E5%A5%87%EF%BC%81
+
 解放区的天边有乌云——西行游记之西域篇
 https://github.com/mztjdyt/ethnic/blob/master/%E8%A7%A3%E6%94%BE%E5%8C%BA%E7%9A%84%E5%A4%A9%E8%BE%B9%E6%9C%89%E4%B9%8C%E4%BA%91%E2%80%94%E2%80%94%E8%A5%BF%E8%A1%8C%E6%B8%B8%E8%AE%B0%E4%B9%8B%E8%A5%BF%E5%9F%9F%E7%AF%87
 
