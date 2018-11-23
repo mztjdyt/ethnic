@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+不要再把“少数名族”的锅让“少数民族”背了！
+https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%8D%E8%A6%81%E5%86%8D%E6%8A%8A%E2%80%9C%E5%B0%91%E6%95%B0%E5%90%8D%E6%97%8F%E2%80%9D%E7%9A%84%E9%94%85%E8%AE%A9%E2%80%9C%E5%B0%91%E6%95%B0%E6%B0%91%E6%97%8F%E2%80%9D%E8%83%8C%E4%BA%86%EF%BC%81
+
 不要脸到了这个地步，真是拍案惊奇！
 https://github.com/mztjdyt/ethnic/blob/master/%E4%B8%8D%E8%A6%81%E8%84%B8%E5%88%B0%E4%BA%86%E8%BF%99%E4%B8%AA%E5%9C%B0%E6%AD%A5%EF%BC%8C%E7%9C%9F%E6%98%AF%E6%8B%8D%E6%A1%88%E6%83%8A%E5%A5%87%EF%BC%81
 
