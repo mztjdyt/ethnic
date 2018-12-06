@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+某些人又想故伎重施，聚众阻挠政府合法行政！
+https://github.com/mztjdyt/ethnic/blob/master/%E6%9F%90%E4%BA%9B%E4%BA%BA%E5%8F%88%E6%83%B3%E6%95%85%E4%BC%8E%E9%87%8D%E6%96%BD%EF%BC%8C%E8%81%9A%E4%BC%97%E9%98%BB%E6%8C%A0%E6%94%BF%E5%BA%9C%E5%90%88%E6%B3%95%E8%A1%8C%E6%94%BF%EF%BC%81
+
 垄断市场、大肆传教、大搞特权：某教政协委员还能不能提点其他的提案？
 https://github.com/mztjdyt/ethnic/blob/master/%E5%9E%84%E6%96%AD%E5%B8%82%E5%9C%BA%E3%80%81%E5%A4%A7%E8%82%86%E4%BC%A0%E6%95%99%E3%80%81%E5%A4%A7%E6%90%9E%E7%89%B9%E6%9D%83%EF%BC%9A%E6%9F%90%E6%95%99%E6%94%BF%E5%8D%8F%E5%A7%94%E5%91%98%E8%BF%98%E8%83%BD%E4%B8%8D%E8%83%BD%E6%8F%90%E7%82%B9%E5%85%B6%E4%BB%96%E7%9A%84%E6%8F%90%E6%A1%88%EF%BC%9F
 
