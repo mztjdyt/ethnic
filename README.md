@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+汉族不是民族？
+https://github.com/mztjdyt/ethnic/blob/master/%E6%B1%89%E6%97%8F%E4%B8%8D%E6%98%AF%E6%B0%91%E6%97%8F%EF%BC%9F
+
 某些人又想故伎重施，聚众阻挠政府合法行政！
 https://github.com/mztjdyt/ethnic/blob/master/%E6%9F%90%E4%BA%9B%E4%BA%BA%E5%8F%88%E6%83%B3%E6%95%85%E4%BC%8E%E9%87%8D%E6%96%BD%EF%BC%8C%E8%81%9A%E4%BC%97%E9%98%BB%E6%8C%A0%E6%94%BF%E5%BA%9C%E5%90%88%E6%B3%95%E8%A1%8C%E6%94%BF%EF%BC%81
 
