@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+四十年过去了，最后的思想禁区能不能被打破？
+https://github.com/mztjdyt/ethnic/blob/master/%E5%9B%9B%E5%8D%81%E5%B9%B4%E8%BF%87%E5%8E%BB%E4%BA%86%EF%BC%8C%E6%9C%80%E5%90%8E%E7%9A%84%E6%80%9D%E6%83%B3%E7%A6%81%E5%8C%BA%E8%83%BD%E4%B8%8D%E8%83%BD%E8%A2%AB%E6%89%93%E7%A0%B4%EF%BC%9F
+
 汉族不是民族？
 https://github.com/mztjdyt/ethnic/blob/master/%E6%B1%89%E6%97%8F%E4%B8%8D%E6%98%AF%E6%B0%91%E6%97%8F%EF%BC%9F
 
