@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+致沉默的同胞：自由平等不能靠“搭便车”
+https://github.com/mztjdyt/ethnic/blob/master/%E8%87%B4%E6%B2%89%E9%BB%98%E7%9A%84%E5%90%8C%E8%83%9E%EF%BC%9A%E8%87%AA%E7%94%B1%E5%B9%B3%E7%AD%89%E4%B8%8D%E8%83%BD%E9%9D%A0%E2%80%9C%E6%90%AD%E4%BE%BF%E8%BD%A6%E2%80%9D
+
 无法无天的“拉面帮”，还有什么干不出来？
 https://github.com/mztjdyt/ethnic/blob/master/%E6%97%A0%E6%B3%95%E6%97%A0%E5%A4%A9%E7%9A%84%E2%80%9C%E6%8B%89%E9%9D%A2%E5%B8%AE%E2%80%9D%EF%BC%8C%E8%BF%98%E6%9C%89%E4%BB%80%E4%B9%88%E5%B9%B2%E4%B8%8D%E5%87%BA%E6%9D%A5%EF%BC%9F
 
