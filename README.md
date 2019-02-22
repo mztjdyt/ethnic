@@ -1,5 +1,8 @@
 请关注微信公众号：天涯何处是神州
 
+让某教学会“尊重”，是中国化的第一步
+https://github.com/mztjdyt/ethnic/blob/master/%E8%AE%A9%E6%9F%90%E6%95%99%E5%AD%A6%E4%BC%9A%E2%80%9C%E5%B0%8A%E9%87%8D%E2%80%9D%EF%BC%8C%E6%98%AF%E4%B8%AD%E5%9B%BD%E5%8C%96%E7%9A%84%E7%AC%AC%E4%B8%80%E6%AD%A5.md
+
 致沉默的同胞：自由平等不能靠“搭便车”
 https://github.com/mztjdyt/ethnic/blob/master/%E8%87%B4%E6%B2%89%E9%BB%98%E7%9A%84%E5%90%8C%E8%83%9E%EF%BC%9A%E8%87%AA%E7%94%B1%E5%B9%B3%E7%AD%89%E4%B8%8D%E8%83%BD%E9%9D%A0%E2%80%9C%E6%90%AD%E4%BE%BF%E8%BD%A6%E2%80%9D.md
 
