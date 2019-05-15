@@ -1,4 +1,4 @@
-请关注微信公众号：天涯何处是神州
+请关注微信公众号：小鸟不死
 
 宁夏高考加分政策就是要逼卡费勒离开
 https://github.com/mztjdyt/ethnic/blob/master/%E5%AE%81%E5%A4%8F%E9%AB%98%E8%80%83%E5%8A%A0%E5%88%86%E6%94%BF%E7%AD%96%E5%B0%B1%E6%98%AF%E8%A6%81%E9%80%BC%E5%8D%A1%E8%B4%B9%E5%8B%92%E7%A6%BB%E5%BC%80.md
