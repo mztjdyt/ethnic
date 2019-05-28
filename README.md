@@ -76,3 +76,21 @@
 [致沉默的同胞：自由平等不能靠“搭便车”](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E8%87%B4%E6%B2%89%E9%BB%98%E7%9A%84%E5%90%8C%E8%83%9E%EF%BC%9A%E8%87%AA%E7%94%B1%E5%B9%B3%E7%AD%89%E4%B8%8D%E8%83%BD%E9%9D%A0%E2%80%9C%E6%90%AD%E4%BE%BF%E8%BD%A6%E2%80%9D.md)
 
 [这个领域是宁夏去“阿化”最难啃的骨头](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E8%BF%99%E4%B8%AA%E9%A2%86%E5%9F%9F%E6%98%AF%E5%AE%81%E5%A4%8F%E5%8E%BB%E2%80%9C%E9%98%BF%E5%8C%96%E2%80%9D%E6%9C%80%E9%9A%BE%E5%95%83%E7%9A%84%E9%AA%A8%E5%A4%B4.md)
+
+# 民族
+
+[OPPO为何对“四大名族”敬而远之？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/OPPO%E4%B8%BA%E4%BD%95%E5%AF%B9%E2%80%9C%E5%9B%9B%E5%A4%A7%E5%90%8D%E6%97%8F%E2%80%9D%E6%95%AC%E8%80%8C%E8%BF%9C%E4%B9%8B%EF%BC%9F.md)
+
+[“前往某委改少民，改了少民不受气”](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E2%80%9C%E5%89%8D%E5%BE%80%E6%9F%90%E5%A7%94%E6%94%B9%E5%B0%91%E6%B0%91%EF%BC%8C%E6%94%B9%E4%BA%86%E5%B0%91%E6%B0%91%E4%B8%8D%E5%8F%97%E6%B0%94%E2%80%9D.md)
+
+[“民族团结”，多少罪恶假汝之名？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E2%80%9C%E6%B0%91%E6%97%8F%E5%9B%A2%E7%BB%93%E2%80%9D%EF%BC%8C%E5%A4%9A%E5%B0%91%E7%BD%AA%E6%81%B6%E5%81%87%E6%B1%9D%E4%B9%8B%E5%90%8D%EF%BC%9F.md)
+
+[一个民族，不争取本族的权利，是毫无希望的奴隶之族](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E4%B8%80%E4%B8%AA%E6%B0%91%E6%97%8F%EF%BC%8C%E4%B8%8D%E4%BA%89%E5%8F%96%E6%9C%AC%E6%97%8F%E7%9A%84%E6%9D%83%E5%88%A9%EF%BC%8C%E6%98%AF%E6%AF%AB%E6%97%A0%E5%B8%8C%E6%9C%9B%E7%9A%84%E5%A5%B4%E9%9A%B6%E4%B9%8B%E6%97%8F.md)
+
+[不要再把“少数名族”的锅让“少数民族”背了！](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E4%B8%8D%E8%A6%81%E5%86%8D%E6%8A%8A%E2%80%9C%E5%B0%91%E6%95%B0%E5%90%8D%E6%97%8F%E2%80%9D%E7%9A%84%E9%94%85%E8%AE%A9%E2%80%9C%E5%B0%91%E6%95%B0%E6%B0%91%E6%97%8F%E2%80%9D%E8%83%8C%E4%BA%86%EF%BC%81.md)
+
+[平等即特权？某些民族的特权应尽快取消而非增加](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E5%B9%B3%E7%AD%89%E5%8D%B3%E7%89%B9%E6%9D%83%EF%BC%9F%E6%9F%90%E4%BA%9B%E6%B0%91%E6%97%8F%E7%9A%84%E7%89%B9%E6%9D%83%E5%BA%94%E5%B0%BD%E5%BF%AB%E5%8F%96%E6%B6%88%E8%80%8C%E9%9D%9E%E5%A2%9E%E5%8A%A0.md)
+
+[是团结还是压迫？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E6%98%AF%E5%9B%A2%E7%BB%93%E8%BF%98%E6%98%AF%E5%8E%8B%E8%BF%AB%EF%BC%9F.md)
+
+[汉族不是民族？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E6%B1%89%E6%97%8F%E4%B8%8D%E6%98%AF%E6%B0%91%E6%97%8F%EF%BC%9F.md)
