@@ -67,4 +67,12 @@
 
 [某地除了国旗，还有红的吗？](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E6%9F%90%E5%9C%B0%E9%99%A4%E4%BA%86%E5%9B%BD%E6%97%97%EF%BC%8C%E8%BF%98%E6%9C%89%E7%BA%A2%E7%9A%84%E5%90%97%EF%BC%9F.md)
 
+# 新闻
 
+[书灰未冷便入狱，长安原来已斯坦](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E4%B9%A6%E7%81%B0%E6%9C%AA%E5%86%B7%E4%BE%BF%E5%85%A5%E7%8B%B1%EF%BC%8C%E9%95%BF%E5%AE%89%E5%8E%9F%E6%9D%A5%E5%B7%B2%E6%96%AF%E5%9D%A6.md)
+
+[甘肃治理“泛清真化”？连治标都算不上](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E7%94%98%E8%82%83%E6%B2%BB%E7%90%86%E2%80%9C%E6%B3%9B%E6%B8%85%E7%9C%9F%E5%8C%96%E2%80%9D%EF%BC%9F%E8%BF%9E%E6%B2%BB%E6%A0%87%E9%83%BD%E7%AE%97%E4%B8%8D%E4%B8%8A.md)
+
+[致沉默的同胞：自由平等不能靠“搭便车”](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E8%87%B4%E6%B2%89%E9%BB%98%E7%9A%84%E5%90%8C%E8%83%9E%EF%BC%9A%E8%87%AA%E7%94%B1%E5%B9%B3%E7%AD%89%E4%B8%8D%E8%83%BD%E9%9D%A0%E2%80%9C%E6%90%AD%E4%BE%BF%E8%BD%A6%E2%80%9D.md)
+
+[这个领域是宁夏去“阿化”最难啃的骨头](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E8%BF%99%E4%B8%AA%E9%A2%86%E5%9F%9F%E6%98%AF%E5%AE%81%E5%A4%8F%E5%8E%BB%E2%80%9C%E9%98%BF%E5%8C%96%E2%80%9D%E6%9C%80%E9%9A%BE%E5%95%83%E7%9A%84%E9%AA%A8%E5%A4%B4.md)
