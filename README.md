@@ -1,7 +1,6 @@
 请关注微信公众号：小鸟不死
 
-宁夏高考加分政策就是要逼卡费勒离开
-https://github.com/mztjdyt/ethnic/blob/master/%E5%AE%81%E5%A4%8F%E9%AB%98%E8%80%83%E5%8A%A0%E5%88%86%E6%94%BF%E7%AD%96%E5%B0%B1%E6%98%AF%E8%A6%81%E9%80%BC%E5%8D%A1%E8%B4%B9%E5%8B%92%E7%A6%BB%E5%BC%80.md
+[宁夏高考加分政策就是要逼卡费勒离开](https://github.com/mztjdyt/ethnic/blob/master/%E5%8A%A0%E5%88%86/%E5%AE%81%E5%A4%8F%E9%AB%98%E8%80%83%E5%8A%A0%E5%88%86%E6%94%BF%E7%AD%96%E5%B0%B1%E6%98%AF%E8%A6%81%E9%80%BC%E5%8D%A1%E8%B4%B9%E5%8B%92%E7%A6%BB%E5%BC%80.md)
 
 某些领导，不要把你们喜欢的特权强加给外国友人了
 https://github.com/mztjdyt/ethnic/blob/master/%E6%9F%90%E4%BA%9B%E9%A2%86%E5%AF%BC%EF%BC%8C%E4%B8%8D%E8%A6%81%E6%8A%8A%E4%BD%A0%E4%BB%AC%E5%96%9C%E6%AC%A2%E7%9A%84%E7%89%B9%E6%9D%83%E5%BC%BA%E5%8A%A0%E7%BB%99%E5%A4%96%E5%9B%BD%E5%8F%8B%E4%BA%BA%E4%BA%86.md
