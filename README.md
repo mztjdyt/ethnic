@@ -12,6 +12,10 @@
 
 [某些领导，不要把你们喜欢的特权强加给外国友人了](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E6%9F%90%E4%BA%9B%E9%A2%86%E5%AF%BC%EF%BC%8C%E4%B8%8D%E8%A6%81%E6%8A%8A%E4%BD%A0%E4%BB%AC%E5%96%9C%E6%AC%A2%E7%9A%84%E7%89%B9%E6%9D%83%E5%BC%BA%E5%8A%A0%E7%BB%99%E5%A4%96%E5%9B%BD%E5%8F%8B%E4%BA%BA%E4%BA%86.md)
 
+[“中非一家亲”用得着这样吗？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E2%80%9C%E4%B8%AD%E9%9D%9E%E4%B8%80%E5%AE%B6%E4%BA%B2%E2%80%9D%E7%94%A8%E5%BE%97%E7%9D%80%E8%BF%99%E6%A0%B7%E5%90%97%EF%BC%9F.md)
+
+[义乌重蹈欧洲难民危机覆辙？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E4%B9%89%E4%B9%8C%E9%87%8D%E8%B9%88%E6%AC%A7%E6%B4%B2%E9%9A%BE%E6%B0%91%E5%8D%B1%E6%9C%BA%E8%A6%86%E8%BE%99%EF%BC%9F.md)
+
 敢问洛阳，“少数××优先”凭什么？
 https://github.com/mztjdyt/ethnic/blob/master/%E6%95%A2%E9%97%AE%E6%B4%9B%E9%98%B3%EF%BC%8C%E2%80%9C%E5%B0%91%E6%95%B0%C3%97%C3%97%E4%BC%98%E5%85%88%E2%80%9D%E5%87%AD%E4%BB%80%E4%B9%88%EF%BC%9F.md
 
