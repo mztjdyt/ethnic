@@ -44,3 +44,27 @@
 # 反恐
 
 [17年后，恐怖主义仍未远离](https://github.com/mztjdyt/ethnic/blob/master/%E5%8F%8D%E6%81%90/17%E5%B9%B4%E5%90%8E%EF%BC%8C%E6%81%90%E6%80%96%E4%B8%BB%E4%B9%89%E4%BB%8D%E6%9C%AA%E8%BF%9C%E7%A6%BB.md)
+
+# 宗教
+
+[让某教学会“尊重”，是中国化的第一步](https://github.com/mztjdyt/ethnic/blob/master/%E5%AE%97%E6%95%99/%E8%AE%A9%E6%9F%90%E6%95%99%E5%AD%A6%E4%BC%9A%E2%80%9C%E5%B0%8A%E9%87%8D%E2%80%9D%EF%BC%8C%E6%98%AF%E4%B8%AD%E5%9B%BD%E5%8C%96%E7%9A%84%E7%AC%AC%E4%B8%80%E6%AD%A5.md)
+
+# 教徒
+
+[“被文明遗弃的支那猪”——韦州事件后某教徒部分留言展示](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E2%80%9C%E8%A2%AB%E6%96%87%E6%98%8E%E9%81%97%E5%BC%83%E7%9A%84%E6%94%AF%E9%82%A3%E7%8C%AA%E2%80%9D%E2%80%94%E2%80%94%E9%9F%A6%E5%B7%9E%E4%BA%8B%E4%BB%B6%E5%90%8E%E6%9F%90%E6%95%99%E5%BE%92%E9%83%A8%E5%88%86%E7%95%99%E8%A8%80%E5%B1%95%E7%A4%BA.md)
+
+[一边抵制中秋节，一边卖清真月饼：去中国化与赚钱两不误](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E4%B8%80%E8%BE%B9%E6%8A%B5%E5%88%B6%E4%B8%AD%E7%A7%8B%E8%8A%82%EF%BC%8C%E4%B8%80%E8%BE%B9%E5%8D%96%E6%B8%85%E7%9C%9F%E6%9C%88%E9%A5%BC%EF%BC%9A%E5%8E%BB%E4%B8%AD%E5%9B%BD%E5%8C%96%E4%B8%8E%E8%B5%9A%E9%92%B1%E4%B8%A4%E4%B8%8D%E8%AF%AF.md)
+
+[不要脸到了这个地步，真是拍案惊奇！](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E4%B8%8D%E8%A6%81%E8%84%B8%E5%88%B0%E4%BA%86%E8%BF%99%E4%B8%AA%E5%9C%B0%E6%AD%A5%EF%BC%8C%E7%9C%9F%E6%98%AF%E6%8B%8D%E6%A1%88%E6%83%8A%E5%A5%87%EF%BC%81.md)
+
+[两种中国之命运](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E4%B8%A4%E7%A7%8D%E4%B8%AD%E5%9B%BD%E4%B9%8B%E5%91%BD%E8%BF%90.md)
+
+[开斋节凭什么可以占道礼拜？](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E5%BC%80%E6%96%8B%E8%8A%82%E5%87%AD%E4%BB%80%E4%B9%88%E5%8F%AF%E4%BB%A5%E5%8D%A0%E9%81%93%E7%A4%BC%E6%8B%9C%EF%BC%9F.md)
+
+[无法无天的“拉面帮”，还有什么干不出来？](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E6%97%A0%E6%B3%95%E6%97%A0%E5%A4%A9%E7%9A%84%E2%80%9C%E6%8B%89%E9%9D%A2%E5%B8%AE%E2%80%9D%EF%BC%8C%E8%BF%98%E6%9C%89%E4%BB%80%E4%B9%88%E5%B9%B2%E4%B8%8D%E5%87%BA%E6%9D%A5%EF%BC%9F.md)
+
+[某些人讳猪成疾、指猪为“大”何时休？](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E6%9F%90%E4%BA%9B%E4%BA%BA%E8%AE%B3%E7%8C%AA%E6%88%90%E7%96%BE%E3%80%81%E6%8C%87%E7%8C%AA%E4%B8%BA%E2%80%9C%E5%A4%A7%E2%80%9D%E4%BD%95%E6%97%B6%E4%BC%91%EF%BC%9F.md)
+
+[某地除了国旗，还有红的吗？](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E5%BE%92/%E6%9F%90%E5%9C%B0%E9%99%A4%E4%BA%86%E5%9B%BD%E6%97%97%EF%BC%8C%E8%BF%98%E6%9C%89%E7%BA%A2%E7%9A%84%E5%90%97%EF%BC%9F.md)
+
+
