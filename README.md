@@ -4,6 +4,15 @@
 
 [挖汉人坟，就是殡葬改革；修×民墓，就是尊重习俗？](https://github.com/mztjdyt/ethnic/blob/master/%E6%AE%A1%E8%91%AC/%E6%8C%96%E6%B1%89%E4%BA%BA%E5%9D%9F%EF%BC%8C%E5%B0%B1%E6%98%AF%E6%AE%A1%E8%91%AC%E6%94%B9%E9%9D%A9%EF%BC%9B%E4%BF%AE%C3%97%E6%B0%91%E5%A2%93%EF%BC%8C%E5%B0%B1%E6%98%AF%E5%B0%8A%E9%87%8D%E4%B9%A0%E4%BF%97%EF%BC%9F.md)
 
+[为何同为中国公民，死了还不能平等？](https://github.com/mztjdyt/ethnic/blob/master/%E6%AE%A1%E8%91%AC/%E4%B8%BA%E4%BD%95%E5%90%8C%E4%B8%BA%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%EF%BC%8C%E6%AD%BB%E4%BA%86%E8%BF%98%E4%B8%8D%E8%83%BD%E5%B9%B3%E7%AD%89%EF%BC%9F.md)
+
+[死人也要分贵贱，这是逼汉入×吗？](https://github.com/mztjdyt/ethnic/blob/master/%E6%AE%A1%E8%91%AC/%E6%AD%BB%E4%BA%BA%E4%B9%9F%E8%A6%81%E5%88%86%E8%B4%B5%E8%B4%B1%EF%BC%8C%E8%BF%99%E6%98%AF%E9%80%BC%E6%B1%89%E5%85%A5%C3%97%E5%90%97%EF%BC%9F.md)
+
+[河北正定，种族歧视连死者都不放过？](https://github.com/mztjdyt/ethnic/blob/master/%E6%AE%A1%E8%91%AC/%E6%B2%B3%E5%8C%97%E6%AD%A3%E5%AE%9A%EF%BC%8C%E7%A7%8D%E6%97%8F%E6%AD%A7%E8%A7%86%E8%BF%9E%E6%AD%BB%E8%80%85%E9%83%BD%E4%B8%8D%E6%94%BE%E8%BF%87%EF%BC%9F.md)
+
+[烧的是棺材，更是人心和传统](https://github.com/mztjdyt/ethnic/blob/master/%E6%AE%A1%E8%91%AC/%E7%83%A7%E7%9A%84%E6%98%AF%E6%A3%BA%E6%9D%90%EF%BC%8C%E6%9B%B4%E6%98%AF%E4%BA%BA%E5%BF%83%E5%92%8C%E4%BC%A0%E7%BB%9F.md)
+
+
 # 加分
 
 [宁夏高考加分政策就是要逼卡费勒离开](https://github.com/mztjdyt/ethnic/blob/master/%E5%8A%A0%E5%88%86/%E5%AE%81%E5%A4%8F%E9%AB%98%E8%80%83%E5%8A%A0%E5%88%86%E6%94%BF%E7%AD%96%E5%B0%B1%E6%98%AF%E8%A6%81%E9%80%BC%E5%8D%A1%E8%B4%B9%E5%8B%92%E7%A6%BB%E5%BC%80.md)
