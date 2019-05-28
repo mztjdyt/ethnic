@@ -94,3 +94,13 @@
 [是团结还是压迫？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E6%98%AF%E5%9B%A2%E7%BB%93%E8%BF%98%E6%98%AF%E5%8E%8B%E8%BF%AB%EF%BC%9F.md)
 
 [汉族不是民族？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E6%B1%89%E6%97%8F%E4%B8%8D%E6%98%AF%E6%B0%91%E6%97%8F%EF%BC%9F.md)
+
+# 法律
+
+[【警惕】日拱一卒的“嵌入”路线图](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/%E3%80%90%E8%AD%A6%E6%83%95%E3%80%91%E6%97%A5%E6%8B%B1%E4%B8%80%E5%8D%92%E7%9A%84%E2%80%9C%E5%B5%8C%E5%85%A5%E2%80%9D%E8%B7%AF%E7%BA%BF%E5%9B%BE.md)
+
+[何时能对扭曲的“××团结”进行“正当防卫”？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/%E4%BD%95%E6%97%B6%E8%83%BD%E5%AF%B9%E6%89%AD%E6%9B%B2%E7%9A%84%E2%80%9C%C3%97%C3%97%E5%9B%A2%E7%BB%93%E2%80%9D%E8%BF%9B%E8%A1%8C%E2%80%9C%E6%AD%A3%E5%BD%93%E9%98%B2%E5%8D%AB%E2%80%9D%EF%BC%9F.md)
+
+[四十年过去了，最后的思想禁区能不能被打破？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/%E5%9B%9B%E5%8D%81%E5%B9%B4%E8%BF%87%E5%8E%BB%E4%BA%86%EF%BC%8C%E6%9C%80%E5%90%8E%E7%9A%84%E6%80%9D%E6%83%B3%E7%A6%81%E5%8C%BA%E8%83%BD%E4%B8%8D%E8%83%BD%E8%A2%AB%E6%89%93%E7%A0%B4%EF%BC%9F.md)
+
+
