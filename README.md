@@ -106,3 +106,14 @@
 # 清真产业
 
 [厉害了！广西门户洞开，某教长驱直入](https://github.com/mztjdyt/ethnic/blob/master/%E6%B8%85%E7%9C%9F%E4%BA%A7%E4%B8%9A/%E5%8E%89%E5%AE%B3%E4%BA%86%EF%BC%81%E5%B9%BF%E8%A5%BF%E9%97%A8%E6%88%B7%E6%B4%9E%E5%BC%80%EF%BC%8C%E6%9F%90%E6%95%99%E9%95%BF%E9%A9%B1%E7%9B%B4%E5%85%A5.md)
+
+# 清真寺
+
+[一个违法清真寺的拆除通知，为何引发全国网民高度关注和宗教势力的强烈反对？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B8%85%E7%9C%9F%E5%AF%BA/%E4%B8%80%E4%B8%AA%E8%BF%9D%E6%B3%95%E6%B8%85%E7%9C%9F%E5%AF%BA%E7%9A%84%E6%8B%86%E9%99%A4%E9%80%9A%E7%9F%A5%EF%BC%8C%E4%B8%BA%E4%BD%95%E5%BC%95%E5%8F%91%E5%85%A8%E5%9B%BD%E7%BD%91%E6%B0%91%E9%AB%98%E5%BA%A6%E5%85%B3%E6%B3%A8%E5%92%8C%E5%AE%97%E6%95%99%E5%8A%BF%E5%8A%9B%E7%9A%84%E5%BC%BA%E7%83%88%E5%8F%8D%E5%AF%B9%EF%BC%9F.md)
+
+[某些人又想故伎重施，聚众阻挠政府合法行政！](https://github.com/mztjdyt/ethnic/blob/master/%E6%B8%85%E7%9C%9F%E5%AF%BA/%E6%9F%90%E4%BA%9B%E4%BA%BA%E5%8F%88%E6%83%B3%E6%95%85%E4%BC%8E%E9%87%8D%E6%96%BD%EF%BC%8C%E8%81%9A%E4%BC%97%E9%98%BB%E6%8C%A0%E6%94%BF%E5%BA%9C%E5%90%88%E6%B3%95%E8%A1%8C%E6%94%BF%EF%BC%81.md)
+
+# 游记
+
+[解放区的天边有乌云——西行游记之西域篇](https://github.com/mztjdyt/ethnic/blob/master/%E6%B8%B8%E8%AE%B0/%E8%A7%A3%E6%94%BE%E5%8C%BA%E7%9A%84%E5%A4%A9%E8%BE%B9%E6%9C%89%E4%B9%8C%E4%BA%91%E2%80%94%E2%80%94%E8%A5%BF%E8%A1%8C%E6%B8%B8%E8%AE%B0%E4%B9%8B%E8%A5%BF%E5%9F%9F%E7%AF%87.md)
+
