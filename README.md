@@ -103,4 +103,6 @@
 
 [四十年过去了，最后的思想禁区能不能被打破？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/%E5%9B%9B%E5%8D%81%E5%B9%B4%E8%BF%87%E5%8E%BB%E4%BA%86%EF%BC%8C%E6%9C%80%E5%90%8E%E7%9A%84%E6%80%9D%E6%83%B3%E7%A6%81%E5%8C%BA%E8%83%BD%E4%B8%8D%E8%83%BD%E8%A2%AB%E6%89%93%E7%A0%B4%EF%BC%9F.md)
 
+# 清真产业
 
+[厉害了！广西门户洞开，某教长驱直入](https://github.com/mztjdyt/ethnic/blob/master/%E6%B8%85%E7%9C%9F%E4%BA%A7%E4%B8%9A/%E5%8E%89%E5%AE%B3%E4%BA%86%EF%BC%81%E5%B9%BF%E8%A5%BF%E9%97%A8%E6%88%B7%E6%B4%9E%E5%BC%80%EF%BC%8C%E6%9F%90%E6%95%99%E9%95%BF%E9%A9%B1%E7%9B%B4%E5%85%A5.md)
