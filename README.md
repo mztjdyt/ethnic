@@ -25,6 +25,30 @@
 
 [义乌重蹈欧洲难民危机覆辙？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E4%B9%89%E4%B9%8C%E9%87%8D%E8%B9%88%E6%AC%A7%E6%B4%B2%E9%9A%BE%E6%B0%91%E5%8D%B1%E6%9C%BA%E8%A6%86%E8%BE%99%EF%BC%9F.md)
 
+[一篇“过时”的报道何以引发网友热议，又何以激怒了某些所谓“女权”分子？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E4%B8%80%E7%AF%87%E2%80%9C%E8%BF%87%E6%97%B6%E2%80%9D%E7%9A%84%E6%8A%A5%E9%81%93%E4%BD%95%E4%BB%A5%E5%BC%95%E5%8F%91%E7%BD%91%E5%8F%8B%E7%83%AD%E8%AE%AE%EF%BC%8C%E5%8F%88%E4%BD%95%E4%BB%A5%E6%BF%80%E6%80%92%E4%BA%86%E6%9F%90%E4%BA%9B%E6%89%80%E8%B0%93%E2%80%9C%E5%A5%B3%E6%9D%83%E2%80%9D%E5%88%86%E5%AD%90%EF%BC%9F.md)
+
+[中巴跨境大巴开启，是福是祸？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E4%B8%AD%E5%B7%B4%E8%B7%A8%E5%A2%83%E5%A4%A7%E5%B7%B4%E5%BC%80%E5%90%AF%EF%BC%8C%E6%98%AF%E7%A6%8F%E6%98%AF%E7%A5%B8%EF%BC%9F.md)
+
+[今生无悔入华夏，来世还做巴国男](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E4%BB%8A%E7%94%9F%E6%97%A0%E6%82%94%E5%85%A5%E5%8D%8E%E5%A4%8F%EF%BC%8C%E6%9D%A5%E4%B8%96%E8%BF%98%E5%81%9A%E5%B7%B4%E5%9B%BD%E7%94%B7.md)
+
+[外国“杰瑞”来了，“汤姆”还会远吗？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E5%A4%96%E5%9B%BD%E2%80%9C%E6%9D%B0%E7%91%9E%E2%80%9D%E6%9D%A5%E4%BA%86%EF%BC%8C%E2%80%9C%E6%B1%A4%E5%A7%86%E2%80%9D%E8%BF%98%E4%BC%9A%E8%BF%9C%E5%90%97%EF%BC%9F.md)
+
+[大棋党，群众用不着你们来当导师](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E5%A4%A7%E6%A3%8B%E5%85%9A%EF%BC%8C%E7%BE%A4%E4%BC%97%E7%94%A8%E4%B8%8D%E7%9D%80%E4%BD%A0%E4%BB%AC%E6%9D%A5%E5%BD%93%E5%AF%BC%E5%B8%88.md)
+
+[开放移民六步走，现在进行到哪一步了？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E5%BC%80%E6%94%BE%E7%A7%BB%E6%B0%91%E5%85%AD%E6%AD%A5%E8%B5%B0%EF%BC%8C%E7%8E%B0%E5%9C%A8%E8%BF%9B%E8%A1%8C%E5%88%B0%E5%93%AA%E4%B8%80%E6%AD%A5%E4%BA%86%EF%BC%9F.md)
+
+[日本的今天，就是中国的明天：千万外国移民即将到来](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E6%97%A5%E6%9C%AC%E7%9A%84%E4%BB%8A%E5%A4%A9%EF%BC%8C%E5%B0%B1%E6%98%AF%E4%B8%AD%E5%9B%BD%E7%9A%84%E6%98%8E%E5%A4%A9%EF%BC%9A%E5%8D%83%E4%B8%87%E5%A4%96%E5%9B%BD%E7%A7%BB%E6%B0%91%E5%8D%B3%E5%B0%86%E5%88%B0%E6%9D%A5.md)
+
+[是谁，让某些呼吁引进移民的专家突然改口？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E6%98%AF%E8%B0%81%EF%BC%8C%E8%AE%A9%E6%9F%90%E4%BA%9B%E5%91%BC%E5%90%81%E5%BC%95%E8%BF%9B%E7%A7%BB%E6%B0%91%E7%9A%84%E4%B8%93%E5%AE%B6%E7%AA%81%E7%84%B6%E6%94%B9%E5%8F%A3%EF%BC%9F.md)
+
+[某站520白男黄女广告的背后：精神和物质双重殖民](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E6%9F%90%E7%AB%99520%E7%99%BD%E7%94%B7%E9%BB%84%E5%A5%B3%E5%B9%BF%E5%91%8A%E7%9A%84%E8%83%8C%E5%90%8E%EF%BC%9A%E7%B2%BE%E7%A5%9E%E5%92%8C%E7%89%A9%E8%B4%A8%E5%8F%8C%E9%87%8D%E6%AE%96%E6%B0%91.md)
+
+[海南想引入哪些外国“人才”？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E6%B5%B7%E5%8D%97%E6%83%B3%E5%BC%95%E5%85%A5%E5%93%AA%E4%BA%9B%E5%A4%96%E5%9B%BD%E2%80%9C%E4%BA%BA%E6%89%8D%E2%80%9D%EF%BC%9F.md)
+
+[移民管理不能光“放”不“管”](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E7%A7%BB%E6%B0%91%E7%AE%A1%E7%90%86%E4%B8%8D%E8%83%BD%E5%85%89%E2%80%9C%E6%94%BE%E2%80%9D%E4%B8%8D%E2%80%9C%E7%AE%A1%E2%80%9D.md)
+
+[签了个条约就会亡国灭种？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E7%AD%BE%E4%BA%86%E4%B8%AA%E6%9D%A1%E7%BA%A6%E5%B0%B1%E4%BC%9A%E4%BA%A1%E5%9B%BD%E7%81%AD%E7%A7%8D%EF%BC%9F.md)
+
 # 党团官员
 
 [“跪舔式”执法能“民族团结”吗？](https://github.com/mztjdyt/ethnic/blob/master/%E5%85%9A%E5%9B%A2%E5%AE%98%E5%91%98/%E2%80%9C%E8%B7%AA%E8%88%94%E5%BC%8F%E2%80%9D%E6%89%A7%E6%B3%95%E8%83%BD%E2%80%9C%E6%B0%91%E6%97%8F%E5%9B%A2%E7%BB%93%E2%80%9D%E5%90%97%EF%BC%9F.md)
