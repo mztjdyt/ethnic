@@ -103,6 +103,8 @@
 
 # 民族
 
+[拨乱反正：“炎黄子孙”从破坏“民族团结”到“民族团结的纽带”](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E6%8B%A8%E4%B9%B1%E5%8F%8D%E6%AD%A3%EF%BC%9A%E2%80%9C%E7%82%8E%E9%BB%84%E5%AD%90%E5%AD%99%E2%80%9D%E4%BB%8E%E7%A0%B4%E5%9D%8F%E2%80%9C%E6%B0%91%E6%97%8F%E5%9B%A2%E7%BB%93%E2%80%9D%E5%88%B0%E2%80%9C%E6%B0%91%E6%97%8F%E5%9B%A2%E7%BB%93%E7%9A%84%E7%BA%BD%E5%B8%A6%E2%80%9D.md)
+
 [OPPO为何对“四大名族”敬而远之？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/OPPO%E4%B8%BA%E4%BD%95%E5%AF%B9%E2%80%9C%E5%9B%9B%E5%A4%A7%E5%90%8D%E6%97%8F%E2%80%9D%E6%95%AC%E8%80%8C%E8%BF%9C%E4%B9%8B%EF%BC%9F.md)
 
 [“前往某委改少民，改了少民不受气”](https://github.com/mztjdyt/ethnic/blob/master/%E6%B0%91%E6%97%8F/%E2%80%9C%E5%89%8D%E5%BE%80%E6%9F%90%E5%A7%94%E6%94%B9%E5%B0%91%E6%B0%91%EF%BC%8C%E6%94%B9%E4%BA%86%E5%B0%91%E6%B0%91%E4%B8%8D%E5%8F%97%E6%B0%94%E2%80%9D.md)
