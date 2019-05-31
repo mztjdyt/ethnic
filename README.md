@@ -12,6 +12,9 @@
 
 [烧的是棺材，更是人心和传统](https://github.com/mztjdyt/ethnic/blob/master/%E6%AE%A1%E8%91%AC/%E7%83%A7%E7%9A%84%E6%98%AF%E6%A3%BA%E6%9D%90%EF%BC%8C%E6%9B%B4%E6%98%AF%E4%BA%BA%E5%BF%83%E5%92%8C%E4%BC%A0%E7%BB%9F.md)
 
+# 外国
+
+[是谁让他们发出了“法国不止属于法国人”的“呐喊”？](https://github.com/mztjdyt/ethnic/blob/master/%E5%A4%96%E5%9B%BD/%E6%98%AF%E8%B0%81%E8%AE%A9%E4%BB%96%E4%BB%AC%E5%8F%91%E5%87%BA%E4%BA%86%E2%80%9C%E6%B3%95%E5%9B%BD%E4%B8%8D%E6%AD%A2%E5%B1%9E%E4%BA%8E%E6%B3%95%E5%9B%BD%E4%BA%BA%E2%80%9D%E7%9A%84%E2%80%9C%E5%91%90%E5%96%8A%E2%80%9D%EF%BC%9F.md)
 
 # 加分
 
