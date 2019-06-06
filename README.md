@@ -128,6 +128,8 @@
 
 # 法律
 
+[开斋节只给部分少数民族公民放假是违宪的](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/20190531_%E5%BC%80%E6%96%8B%E8%8A%82%E5%8F%AA%E7%BB%99%E9%83%A8%E5%88%86%E5%B0%91%E6%95%B0%E6%B0%91%E6%97%8F%E5%85%AC%E6%B0%91%E6%94%BE%E5%81%87%E6%98%AF%E8%BF%9D%E5%AE%AA%E7%9A%84.png)
+
 [【警惕】日拱一卒的“嵌入”路线图](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/%E3%80%90%E8%AD%A6%E6%83%95%E3%80%91%E6%97%A5%E6%8B%B1%E4%B8%80%E5%8D%92%E7%9A%84%E2%80%9C%E5%B5%8C%E5%85%A5%E2%80%9D%E8%B7%AF%E7%BA%BF%E5%9B%BE.md)
 
 [何时能对扭曲的“××团结”进行“正当防卫”？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/%E4%BD%95%E6%97%B6%E8%83%BD%E5%AF%B9%E6%89%AD%E6%9B%B2%E7%9A%84%E2%80%9C%C3%97%C3%97%E5%9B%A2%E7%BB%93%E2%80%9D%E8%BF%9B%E8%A1%8C%E2%80%9C%E6%AD%A3%E5%BD%93%E9%98%B2%E5%8D%AB%E2%80%9D%EF%BC%9F.md)
