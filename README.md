@@ -22,6 +22,8 @@
 
 # 移民
 
+[山东“学伴”事件就是百年后的又一次“五四”运动](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/20190714_%E5%B1%B1%E4%B8%9C%E2%80%9C%E5%AD%A6%E4%BC%B4%E2%80%9D%E4%BA%8B%E4%BB%B6%E5%B0%B1%E6%98%AF%E7%99%BE%E5%B9%B4%E5%90%8E%E7%9A%84%E5%8F%88%E4%B8%80%E6%AC%A1%E2%80%9C%E4%BA%94%E5%9B%9B%E2%80%9D%E8%BF%90%E5%8A%A8.png)
+
 [某些领导，不要把你们喜欢的特权强加给外国友人了](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E6%9F%90%E4%BA%9B%E9%A2%86%E5%AF%BC%EF%BC%8C%E4%B8%8D%E8%A6%81%E6%8A%8A%E4%BD%A0%E4%BB%AC%E5%96%9C%E6%AC%A2%E7%9A%84%E7%89%B9%E6%9D%83%E5%BC%BA%E5%8A%A0%E7%BB%99%E5%A4%96%E5%9B%BD%E5%8F%8B%E4%BA%BA%E4%BA%86.md)
 
 [“中非一家亲”用得着这样吗？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/%E2%80%9C%E4%B8%AD%E9%9D%9E%E4%B8%80%E5%AE%B6%E4%BA%B2%E2%80%9D%E7%94%A8%E5%BE%97%E7%9D%80%E8%BF%99%E6%A0%B7%E5%90%97%EF%BC%9F.md)
