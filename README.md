@@ -22,6 +22,8 @@
 
 # 移民
 
+[ 网民的胜利！教育部对来华留学改口“质量为先”](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/20190720_%E7%BD%91%E6%B0%91%E7%9A%84%E8%83%9C%E5%88%A9%EF%BC%81%E6%95%99%E8%82%B2%E9%83%A8%E5%AF%B9%E6%9D%A5%E5%8D%8E%E7%95%99%E5%AD%A6%E6%94%B9%E5%8F%A3%E2%80%9C%E8%B4%A8%E9%87%8F%E4%B8%BA%E5%85%88%E2%80%9D.png)
+
 [“学伴”风波，好的很还是糟的很？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/20190714_%E2%80%9C%E5%AD%A6%E4%BC%B4%E2%80%9D%E9%A3%8E%E6%B3%A2%EF%BC%8C%E5%A5%BD%E7%9A%84%E5%BE%88%E8%BF%98%E6%98%AF%E7%B3%9F%E7%9A%84%E5%BE%88%EF%BC%9F.png)
 
 [山东“学伴”事件就是百年后的又一次“五四”运动](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/20190714_%E5%B1%B1%E4%B8%9C%E2%80%9C%E5%AD%A6%E4%BC%B4%E2%80%9D%E4%BA%8B%E4%BB%B6%E5%B0%B1%E6%98%AF%E7%99%BE%E5%B9%B4%E5%90%8E%E7%9A%84%E5%8F%88%E4%B8%80%E6%AC%A1%E2%80%9C%E4%BA%94%E5%9B%9B%E2%80%9D%E8%BF%90%E5%8A%A8.png)
