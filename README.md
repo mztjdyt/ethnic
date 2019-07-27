@@ -1,5 +1,9 @@
 请关注微信公众号：小鸟不死
 
+#教育
+
+[这些大学，是马克思主义的，还是瓦哈比主义的？](https://github.com/mztjdyt/ethnic/blob/master/%E6%95%99%E8%82%B2/%E8%BF%99%E4%BA%9B%E5%A4%A7%E5%AD%A6%EF%BC%8C%E6%98%AF%E9%A9%AC%E5%85%8B%E6%80%9D%E4%B8%BB%E4%B9%89%E7%9A%84%EF%BC%8C%E8%BF%98%E6%98%AF%E7%93%A6%E5%93%88%E6%AF%94%E4%B8%BB%E4%B9%89%E7%9A%84%EF%BC%9F.md)
+
 # 殡葬
 
 [挖汉人坟，就是殡葬改革；修×民墓，就是尊重习俗？](https://github.com/mztjdyt/ethnic/blob/master/%E6%AE%A1%E8%91%AC/%E6%8C%96%E6%B1%89%E4%BA%BA%E5%9D%9F%EF%BC%8C%E5%B0%B1%E6%98%AF%E6%AE%A1%E8%91%AC%E6%94%B9%E9%9D%A9%EF%BC%9B%E4%BF%AE%C3%97%E6%B0%91%E5%A2%93%EF%BC%8C%E5%B0%B1%E6%98%AF%E5%B0%8A%E9%87%8D%E4%B9%A0%E4%BF%97%EF%BC%9F.md)
