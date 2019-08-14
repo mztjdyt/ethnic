@@ -112,6 +112,8 @@
 
 # 新闻
 
+[“港人乱港”如果得不到遏制，“港人治港”就没必要了](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E2%80%9C%E6%B8%AF%E4%BA%BA%E4%B9%B1%E6%B8%AF%E2%80%9D%E5%A6%82%E6%9E%9C%E5%BE%97%E4%B8%8D%E5%88%B0%E9%81%8F%E5%88%B6%EF%BC%8C%E2%80%9C%E6%B8%AF%E4%BA%BA%E6%B2%BB%E6%B8%AF%E2%80%9D%E5%B0%B1%E6%B2%A1%E5%BF%85%E8%A6%81%E4%BA%86.md)
+
 [书灰未冷便入狱，长安原来已斯坦](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E4%B9%A6%E7%81%B0%E6%9C%AA%E5%86%B7%E4%BE%BF%E5%85%A5%E7%8B%B1%EF%BC%8C%E9%95%BF%E5%AE%89%E5%8E%9F%E6%9D%A5%E5%B7%B2%E6%96%AF%E5%9D%A6.md)
 
 [甘肃治理“泛清真化”？连治标都算不上](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E7%94%98%E8%82%83%E6%B2%BB%E7%90%86%E2%80%9C%E6%B3%9B%E6%B8%85%E7%9C%9F%E5%8C%96%E2%80%9D%EF%BC%9F%E8%BF%9E%E6%B2%BB%E6%A0%87%E9%83%BD%E7%AE%97%E4%B8%8D%E4%B8%8A.md)
