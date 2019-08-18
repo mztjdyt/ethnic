@@ -144,6 +144,8 @@
 
 # 法律
 
+[路边烧纸，违法罚款；当街屠宰，无人过问：“双重标准”何时休？](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/20190816_%E8%B7%AF%E8%BE%B9%E7%83%A7%E7%BA%B8%EF%BC%8C%E8%BF%9D%E6%B3%95%E7%BD%9A%E6%AC%BE%EF%BC%9B%E5%BD%93%E8%A1%97%E5%B1%A0%E5%AE%B0%EF%BC%8C%E6%97%A0%E4%BA%BA%E8%BF%87%E9%97%AE%EF%BC%9A%E2%80%9C%E5%8F%8C%E9%87%8D%E6%A0%87%E5%87%86%E2%80%9D%E4%BD%95%E6%97%B6%E4%BC%91%EF%BC%9F.png)
+
 [开斋节只给部分少数民族公民放假是违宪的](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/20190531_%E5%BC%80%E6%96%8B%E8%8A%82%E5%8F%AA%E7%BB%99%E9%83%A8%E5%88%86%E5%B0%91%E6%95%B0%E6%B0%91%E6%97%8F%E5%85%AC%E6%B0%91%E6%94%BE%E5%81%87%E6%98%AF%E8%BF%9D%E5%AE%AA%E7%9A%84.png)
 
 [【警惕】日拱一卒的“嵌入”路线图](https://github.com/mztjdyt/ethnic/blob/master/%E6%B3%95%E5%BE%8B/%E3%80%90%E8%AD%A6%E6%83%95%E3%80%91%E6%97%A5%E6%8B%B1%E4%B8%80%E5%8D%92%E7%9A%84%E2%80%9C%E5%B5%8C%E5%85%A5%E2%80%9D%E8%B7%AF%E7%BA%BF%E5%9B%BE.md)
