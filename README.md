@@ -28,6 +28,8 @@
 
 # 移民
 
+[央视为何大力宣传“黑人兄弟把我们抬进联合国”的谎言？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/20190922_%E5%A4%AE%E8%A7%86%E4%B8%BA%E4%BD%95%E5%A4%A7%E5%8A%9B%E5%AE%A3%E4%BC%A0%E2%80%9C%E9%BB%91%E4%BA%BA%E5%85%84%E5%BC%9F%E6%8A%8A%E6%88%91%E4%BB%AC%E6%8A%AC%E8%BF%9B%E8%81%94%E5%90%88%E5%9B%BD%E2%80%9D%E7%9A%84%E8%B0%8E%E8%A8%80%EF%BC%9F.png)
+
 [ 网民的胜利！教育部对来华留学改口“质量为先”](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/20190720_%E7%BD%91%E6%B0%91%E7%9A%84%E8%83%9C%E5%88%A9%EF%BC%81%E6%95%99%E8%82%B2%E9%83%A8%E5%AF%B9%E6%9D%A5%E5%8D%8E%E7%95%99%E5%AD%A6%E6%94%B9%E5%8F%A3%E2%80%9C%E8%B4%A8%E9%87%8F%E4%B8%BA%E5%85%88%E2%80%9D.png)
 
 [“学伴”风波，好的很还是糟的很？](https://github.com/mztjdyt/ethnic/blob/master/%E7%A7%BB%E6%B0%91/20190714_%E2%80%9C%E5%AD%A6%E4%BC%B4%E2%80%9D%E9%A3%8E%E6%B3%A2%EF%BC%8C%E5%A5%BD%E7%9A%84%E5%BE%88%E8%BF%98%E6%98%AF%E7%B3%9F%E7%9A%84%E5%BE%88%EF%BC%9F.png)
