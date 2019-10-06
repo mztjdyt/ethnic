@@ -160,6 +160,8 @@
 
 # 清真产业
 
+[还记得两年前那个请“吃饭”的伊斯兰特色小镇吗？现在开始招商了！](https://github.com/mztjdyt/ethnic/blob/master/%E6%B8%85%E7%9C%9F%E4%BA%A7%E4%B8%9A/20190927_%E8%BF%98%E8%AE%B0%E5%BE%97%E4%B8%A4%E5%B9%B4%E5%89%8D%E9%82%A3%E4%B8%AA%E8%AF%B7%E2%80%9C%E5%90%83%E9%A5%AD%E2%80%9D%E7%9A%84%E4%BC%8A%E6%96%AF%E5%85%B0%E7%89%B9%E8%89%B2%E5%B0%8F%E9%95%87%E5%90%97%EF%BC%9F%E7%8E%B0%E5%9C%A8%E5%BC%80%E5%A7%8B%E6%8B%9B%E5%95%86%E4%BA%86%EF%BC%81.png)
+
 [厉害了！广西门户洞开，某教长驱直入](https://github.com/mztjdyt/ethnic/blob/master/%E6%B8%85%E7%9C%9F%E4%BA%A7%E4%B8%9A/%E5%8E%89%E5%AE%B3%E4%BA%86%EF%BC%81%E5%B9%BF%E8%A5%BF%E9%97%A8%E6%88%B7%E6%B4%9E%E5%BC%80%EF%BC%8C%E6%9F%90%E6%95%99%E9%95%BF%E9%A9%B1%E7%9B%B4%E5%85%A5.md)
 
 # 清真寺
