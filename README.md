@@ -114,6 +114,8 @@
 
 # 新闻
 
+[警惕打着“行政区划调整”的旗号变相扩大“民族自治区域”](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/20191018_%E8%AD%A6%E6%83%95%E6%89%93%E7%9D%80%E2%80%9C%E8%A1%8C%E6%94%BF%E5%8C%BA%E5%88%92%E8%B0%83%E6%95%B4%E2%80%9D%E7%9A%84%E6%97%97%E5%8F%B7%E5%8F%98%E7%9B%B8%E6%89%A9%E5%A4%A7%E2%80%9C%E6%B0%91%E6%97%8F%E8%87%AA%E6%B2%BB%E5%8C%BA%E5%9F%9F%E2%80%9D.png)
+
 [“港人乱港”如果得不到遏制，“港人治港”就没必要了](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E2%80%9C%E6%B8%AF%E4%BA%BA%E4%B9%B1%E6%B8%AF%E2%80%9D%E5%A6%82%E6%9E%9C%E5%BE%97%E4%B8%8D%E5%88%B0%E9%81%8F%E5%88%B6%EF%BC%8C%E2%80%9C%E6%B8%AF%E4%BA%BA%E6%B2%BB%E6%B8%AF%E2%80%9D%E5%B0%B1%E6%B2%A1%E5%BF%85%E8%A6%81%E4%BA%86.md)
 
 [书灰未冷便入狱，长安原来已斯坦](https://github.com/mztjdyt/ethnic/blob/master/%E6%96%B0%E9%97%BB/%E4%B9%A6%E7%81%B0%E6%9C%AA%E5%86%B7%E4%BE%BF%E5%85%A5%E7%8B%B1%EF%BC%8C%E9%95%BF%E5%AE%89%E5%8E%9F%E6%9D%A5%E5%B7%B2%E6%96%AF%E5%9D%A6.md)
