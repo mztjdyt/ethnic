@@ -68,6 +68,7 @@
 
 # 党团官员
 
+[佛山城管，不要用“民族团结”当作懒政和欺软怕硬的借口！](https://github.com/mztjdyt/ethnic/blob/master/%E5%85%9A%E5%9B%A2%E5%AE%98%E5%91%98/20191108_%E4%BD%9B%E5%B1%B1%E5%9F%8E%E7%AE%A1%EF%BC%8C%E4%B8%8D%E8%A6%81%E7%94%A8%E2%80%9C%E6%B0%91%E6%97%8F%E5%9B%A2%E7%BB%93%E2%80%9D%E5%BD%93%E4%BD%9C%E6%87%92%E6%94%BF%E5%92%8C%E6%AC%BA%E8%BD%AF%E6%80%95%E7%A1%AC%E7%9A%84%E5%80%9F%E5%8F%A3%EF%BC%81.png)
 [巡视只能治标，治本还在路上](https://github.com/mztjdyt/ethnic/blob/master/%E5%85%9A%E5%9B%A2%E5%AE%98%E5%91%98/20190611_%E5%B7%A1%E8%A7%86%E5%8F%AA%E8%83%BD%E6%B2%BB%E6%A0%87%EF%BC%8C%E6%B2%BB%E6%9C%AC%E8%BF%98%E5%9C%A8%E8%B7%AF%E4%B8%8A.png)
 
 [“跪舔式”执法能“民族团结”吗？](https://github.com/mztjdyt/ethnic/blob/master/%E5%85%9A%E5%9B%A2%E5%AE%98%E5%91%98/%E2%80%9C%E8%B7%AA%E8%88%94%E5%BC%8F%E2%80%9D%E6%89%A7%E6%B3%95%E8%83%BD%E2%80%9C%E6%B0%91%E6%97%8F%E5%9B%A2%E7%BB%93%E2%80%9D%E5%90%97%EF%BC%9F.md)
